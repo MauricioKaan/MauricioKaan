@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MauricioKaan
+- 👀 I’m interested in earn and share knowledge
+- 🌱 I’m currently learning Compunter Engeeniring and lot of other contets.
+- 💞️ I’m looking to collaborate on everything i was able to.
+- 📫 How to reach me https://br.linkedin.com/in/mauricio-kaan
